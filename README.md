@@ -174,6 +174,7 @@ add other awesome Kurds, including you!
 - [Ebdulmomen Ahmed](https://twitter.com/Ebdulmomen1)
 - [Keyo Zêbarî](https://twitter.com/KeyoChali)
 - [Layik Hama](https://twitter.com/layik)
+- [Renwar Karim](https://www.instagram.com/kurdsai/)
 - [Sina Ahmadi](https://twitter.com/sina_ahm)
 
 ## Project Management
